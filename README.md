@@ -8,4 +8,4 @@ Ola 👋 Boas vindas ao meu perfil ! :)
   gabrielle.fatima.campos@escola.pr.gov.br
 
 ![](https://media.tenor.com/SI5tOTnHS34AAAAi/verycat-twitch-cat-twitch-emote.gif)
-![](https://media.tenor.com/bWUeVRqW9-IAAAAi/fast-cat-cat-excited.gif)
+![](https://media.tenor.com/TUPveJJ9bkMAAAAC/el-gato-in-my-mind-vibing-made-by-miyuki.gif)
